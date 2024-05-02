@@ -21,6 +21,7 @@
 
 ![1](https://raw.githubusercontent.com/tinalalaina/gst/master/photo/8.PNG)
 <center>*********</center>
+
 ![1](https://raw.githubusercontent.com/tinalalaina/gst/master/photo/9.PNG)
 <center>*********</center>
 
